@@ -1,1 +1,0 @@
-# bayquniya1
